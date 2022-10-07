@@ -77,4 +77,4 @@ Wszystkie moje mysli\
 Z wiara wstan\
 Zastupy kol jesli hluche\
 Znovu hledim\
-Zwroc swoj wzrok na Jezusa\
+Zwroc swoj wzrok na Jezusa
