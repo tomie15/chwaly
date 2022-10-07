@@ -38,11 +38,9 @@ Mou cestu\
 Mow do mnie Panie\
 Muj Buh je muj stit\
 Nasz Bog\
-Niech mowi slaby\
 Niechaj zstapi Duch Twoj\
 Nikdy nekoncici milost\
 Ocean\
-Oczysc serce me\
 Okaz nam zmilowanie\
 Otce nas nebesky\
 Otworz oczy\
@@ -70,7 +68,6 @@ Uzasny Buh\
 V horku stinem\
 Vsade tam kde su\
 Vsechno co mam\
-Vyvysuju Tebe Pane\
 W cieniu Twoich rak\
 W to wierze\
 Wszystkie moje mysli\
