@@ -1,7 +1,7 @@
-# Niwy chwa≥y
+# Niwy chwa≈Çy
 
-Badz wywyzszony
-Blogoslawientswo
+Badz wywyzszony\
+Blogoslawientswo\
 Bog anielskiej armii
 Bog jest mocny
 Buh je sila ma
