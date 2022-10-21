@@ -61,7 +61,6 @@ Spiewam chwala\
 Svetlo\
 Swiec sie imie Twe\
 Swiety zar\
-Taki jestes Ty\
 Twe drogi sa\
 Ty jsi jediny Buh\
 Uzasny Buh\
@@ -70,7 +69,6 @@ Vsade tam kde su\
 Vsechno co mam\
 W cieniu Twoich rak\
 W to wierze\
-Wszystkie moje mysli\
 Z wiara wstan\
 Zastupy kol jesli hluche\
 Znovu hledim\
